@@ -2,7 +2,7 @@
 - 👀 I’m interested in learn about programming
 - 🌱 I’m currently learning programs to code
 - 💞️ I’m looking to collaborate on website creation, to start
-- 📫 How to reach me: naiaradacunha@live.com
+- 📫 How to reach me: naiara
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
